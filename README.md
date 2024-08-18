@@ -1,1 +1,6 @@
 - [https://tracyngtimes.github.io](https://tracyngtimes.github.io)
+- [https://www.quora.com/profile/Tracy-Ng-110](https://www.quora.com/profile/Tracy-Ng-110)
+- [https://www.youtube.com/channel/UCZbnCC3D_7bkhNY8j9Hh7TQ](https://www.youtube.com/channel/UCZbnCC3D_7bkhNY8j9Hh7TQ)
+- [https://x.com/Tracyng101](https://x.com/Tracyng101)
+- [https://yo.fan/tracyng101](https://yo.fan/tracyng101)
+- [https://jptimes.github.io](https://jptimes.github.io)
