@@ -4,3 +4,4 @@
 - [https://x.com/Tracyng101](https://x.com/Tracyng101)
 - [https://yo.fan/tracyng101](https://yo.fan/tracyng101)
 - [https://jptimes.github.io](https://jptimes.github.io)
+- [https://medium.com/@TracyNg101](https://medium.com/@TracyNg101)
